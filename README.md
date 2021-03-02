@@ -1,6 +1,5 @@
  # Projects From Wajex 🌌
 
-Wajex, which i founded, has been active since 2019.
 
  ### 2021 🚀
 
